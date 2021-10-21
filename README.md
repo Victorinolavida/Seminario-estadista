@@ -1,2 +1,2 @@
-# Seminario-estadista
-Integrantes
+# Seminario Estadísta
+
